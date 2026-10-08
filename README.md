@@ -1,0 +1,1 @@
+Project title - Recruitment and HR Resume Management System for Efficient Hiring Team members - G Chaitanya - 2420030721 S Sai Rishik - 2420030121 J Vaman - 2420030736 Supervisor name - Venkateshwari Mam
